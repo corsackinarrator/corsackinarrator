@@ -1,4 +1,4 @@
-# <kbd>It's us, Corsal/Corsackin</kbd>
+# It's us, Corsal/Corsackin
 
 we go by we\them and she\her\they\them\it\its\nar\narself (she\them preferred)
 
