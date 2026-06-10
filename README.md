@@ -8,7 +8,7 @@ many hyperfixations lelele
 
 # PLEASE C+H AND INT, THATS OUR COMF
 
-fictkin: the narrator (tsp)
+KIN: the narrator (tsp)
 COPINGLINK: cy/cypher (the zombie's revenge)
 
 doubles IWC
