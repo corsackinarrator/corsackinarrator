@@ -30,6 +30,6 @@ PATHOLOGY, MUSIC THEORY, WW2 HISTORY
 don't bring up bl00d we get rlly uncomfortable srry
 
 # CLICK HERE \/
-https://saintpetersburg.straw.page
+https://cylvestergpt.straw.page
 
 <kbd>𝒮𝒾𝓃𝒸𝑒𝓇𝑒𝓁𝓎, 𝓉𝒽𝑒 𝒩𝒶𝓇𝓇𝒶𝓉𝑜𝓇</kbd>
