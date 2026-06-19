@@ -4,7 +4,7 @@ we go by we\them and she\her\they\them\it\its\nar\narself (she\them preferred)
 
 many hyperfixations lelele
 
-# ADHD and possible OCD
+# ADHD and possible OSDD-1B
 
 # PLEASE C+H AND INT, THATS OUR COMF
 
