@@ -8,8 +8,10 @@ many hyperfixations lelele
 
 # PLEASE C+H AND INT, THATS OUR COMF
 
-KIN: the narrator (tsp)
-COPINGLINK: cy/cypher (the zombie's revenge)
+CORSALS KIN: the narrator (tsp)
+CORSALS COPINGLINK: cy/cypher (the zombie's revenge)
+MITZIMATICS KIN: none
+WILLOWS KIN: fluttershy
 
 doubles IWC
 
