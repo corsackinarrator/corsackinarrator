@@ -17,7 +17,7 @@ twinkins let's have a party
 
 <3: G, A, J, J, A, A, R, F
 
-# HYPERFIXATIONS:
+# INTERESTS:
 
 4SAKN, BLOCKTALES, CRK, DANDYSWORLD, INANIMATEINSANITY,
 
