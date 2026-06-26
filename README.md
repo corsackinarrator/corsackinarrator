@@ -8,7 +8,7 @@ many hyperfixations lelele
 
 # PLEASE C+H AND INT, THATS OUR COMF
 
-CORSALS KIN: the narrator (tsp)
+CORSALS FULLFIX: Operator (Nullscape)
 CORSALS COPINGLINK: cy/cypher (the zombie's revenge)
 MITZIMATICS KIN: none
 WILLOWS KIN: fluttershy
