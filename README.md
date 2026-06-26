@@ -15,7 +15,8 @@ WILLOWS KIN: fluttershy
 
 twinkins let's have a party
 
-<3: G, A, J, J, A, A, R, F
+<3: G, A, J, A, A, R, F
+<3 <3 <3: J
 
 # INTERESTS:
 
