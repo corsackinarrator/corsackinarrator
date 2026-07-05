@@ -35,4 +35,7 @@ don't bring up bl00d we get rlly uncomfortable srry
 # CLICK HERE \/
 https://corsalnarrator.straw.page
 
+# ARTFIGHT!!! \/
+https://artfight.net/~floweringwilloww-yt
+
 <kbd>𝒮𝒾𝓃𝒸𝑒𝓇𝑒𝓁𝓎, 𝓉𝒽𝑒 𝒩𝒶𝓇𝓇𝒶𝓉𝑜𝓇</kbd>
