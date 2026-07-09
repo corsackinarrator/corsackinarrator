@@ -34,6 +34,7 @@ don't bring up bl00d we get rlly uncomfortable srry
 
 # CLICK HERE \/
 https://corsalnarrator.straw.page
+https://pronouns.cc/@OperatingSystem
 
 # ARTFIGHT!!! \/
 https://artfight.net/~floweringwilloww-yt
