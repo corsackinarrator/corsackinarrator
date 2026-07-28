@@ -2,7 +2,7 @@
 
 kaizer n cylvester! ^
 
-DIAGNOSED ADHD and possible P-DID
+DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace.
 PLEASE C+H AND INT, THATS OUR COMF
 
 # INTERESTS:
