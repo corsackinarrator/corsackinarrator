@@ -4,6 +4,8 @@ kaizer n cylvester!
 
 # How swift the hours did pass away, with the girl I left behind me!
 
+![](https://komarev.com/ghpvc/?username=corsackinarrator)
+
 DIAGNOSED ADHD and possible P-DID
 PLEASE C+H AND INT, THATS OUR COMF
 
