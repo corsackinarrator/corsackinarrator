@@ -2,8 +2,6 @@
 
 kaizer n cylvester! ^
 
-![](https://komarev.com/ghpvc/?username=corsackinarrator)
-
 DIAGNOSED ADHD and possible P-DID
 PLEASE C+H AND INT, THATS OUR COMF
 
@@ -18,6 +16,8 @@ DIE OF DEATH, **HETALIA**, COUNTRYHUMANS, PJSK, ZATO: ILTWAEIT,
 **TSPUD**, NSO, **G&B**, **NAPOLEONIC WARS**, **NULLSCAPE**, THE ZOMBIES REVENGE, ONESHEF
 
 **NAPOLEONICLOIDS**, PATHOLOGY, MUSIC THEORY, **WW2 HISTORY**, FRUTIGER AERO
+
+![](https://komarev.com/ghpvc/?username=corsackinarrator)
 
 
 
