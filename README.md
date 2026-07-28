@@ -37,12 +37,3 @@ https://artfight.net/~floweringwilloww-yt
 <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/ed290cbb-1ffc-482d-8e85-6804cca41758" /> <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/91b8ab6e-9c97-49a9-8f41-48afd5cc3e33" />
 <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/b6a9b99f-011e-4d38-9c77-4e727c4c1eaa" /> <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/ece38511-b57e-42c3-bd6b-d3199be3314e" />
 <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/61ff9c44-d582-4d09-9423-84a77f77eddf" /> <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/a0c20482-2c59-477b-965f-9fee685009e3" />
-
-
-
-
-
-
-
-
-
