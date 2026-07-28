@@ -21,7 +21,8 @@ NAPOLEONICLOIDS, PATHOLOGY, MUSIC THEORY, WW2 HISTORY, FRUTIGER AERO
 
 don't bring up bl00d we get rlly uncomfortable srry
 
-our ata! \/
+# our ata! \/
+
 https://operatingsystem.atabook.org/
 
 # ARTFIGHT!!! \/
