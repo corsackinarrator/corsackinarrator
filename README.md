@@ -28,9 +28,10 @@ NAPOLEONICLOIDS, PATHOLOGY, MUSIC THEORY, WW2 HISTORY, FRUTIGER AERO
 don't bring up bl00d we get rlly uncomfortable srry
 
 # CLICK HERE \/
-https://corsalnarrator.straw.page
 
 https://pronouns.cc/@OperatingSystem
+
+https://operatingsystem.atabook.org/
 
 # ARTFIGHT!!! \/
 https://artfight.net/~floweringwilloww-yt
