@@ -1,3 +1,5 @@
+<img width="976" height="771" alt="image" src="https://github.com/user-attachments/assets/f59caf1d-096e-458b-afd7-c6b08d7e4d30" />
+kaizer n cylvester! /\
 
 # How swift the hours did pass away, with the girl I left behind me!
 
