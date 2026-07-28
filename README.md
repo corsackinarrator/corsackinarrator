@@ -1,17 +1,12 @@
-# It's us, Corsal/Corsackin
+# It's us, yippee
 
 we go by we\them and she\her\they\them\it\its\nar\narself (she\them preferred)
 
-many hyperfixations lelele
+many interests lelele
 
-# ADHD and possible OSDD-1B
+# DIAGNOSED ADHD and possible P-DID
 
 # PLEASE C+H AND INT, THATS OUR COMF
-
-CORSALS FULLFIX: Operator (Nullscape)
-CORSALS COPINGLINK: cy/cypher (the zombie's revenge)
-MITZIMATICS KIN: none
-WILLOWS KIN: fluttershy
 
 twinkins let's have a party
 
@@ -28,7 +23,7 @@ DIE OF DEATH, HETALIIA, COUNTRYHUMANS, PJSK, ZATO: ILTWAEIT,
 
 TSPUD, TSP, NSO, G&B, NAPOLEONIC WARS, NULLSCAPE, THE ZOMBIES REVENGE, ONESHEF
 
-PATHOLOGY, MUSIC THEORY, WW2 HISTORY, FRUTIGER AERO
+NAPOLEONICLOIDS, PATHOLOGY, MUSIC THEORY, WW2 HISTORY, FRUTIGER AERO
 
 don't bring up bl00d we get rlly uncomfortable srry
 
