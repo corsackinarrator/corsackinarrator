@@ -2,8 +2,18 @@
 
 kaizer n cylvester! ^
 
-<img width="432" height="433" alt="image" src="https://github.com/user-attachments/assets/bfae7a63-f3b9-4ebe-bdf7-bcf20d1cef7c" /> DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace.
-PLEASE C+H AND INT, THATS OUR COMF
+<table>
+  <tr>
+    <td width="30%">
+      <img src="<img width="432" height="433" alt="image" src="https://github.com/user-attachments/assets/3591ed4f-314f-4c02-a0bc-45ee1e6b206d" />
+" width="100%">
+    </td>
+    <td width="70%" valign="top">
+      <h3>Title</h3>
+      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. PLEASE C+H AND INT, THATS OUR COMF</p>
+    </td>
+  </tr>
+</table>
 
 # INTERESTS:
 
