@@ -5,7 +5,7 @@ kaizer n cylvester! ^
 <table>
   <tr>
     <td width="30%">
-      <img src=https://github.com/user-attachments/assets/3591ed4f-314f-4c02-a0bc-45ee1e6b206d" width="100%">
+      <img src="https://github.com/user-attachments/assets/c21a0d86-02a6-4705-99b2-9bb5f5b44393" width="100%">
     </td>
     <td width="70%" valign="top">
       <h3>Title</h3>
