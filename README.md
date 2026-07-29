@@ -8,23 +8,12 @@ kaizer n cylvester! ^
       <img src="https://github.com/user-attachments/assets/c21a0d86-02a6-4705-99b2-9bb5f5b44393" width="100%">
     </td>
     <td width="70%" valign="top">
-      <h3>Title</h3>
-      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. PLEASE C+H AND INT, THATS OUR COMF</p>
+      <h3>SOME INFO ABOUT ME!</h3>
+      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. PLEASE C+H AND INT, THATS OUR COMF! Main interests are G&B, NAPOLEONICLOIDS, NULLSCAPE, LOBCORP, AHA, HETALIA, CLASSICALOID and OMORI, but i have more interests in my strawpage!
+      [strawpage](https://cylvestergpt.straw.page) [ata](https://operatingsystem.atabook.org/) [artfight](https://artfight.net/~floweringwilloww-yt)</p>
     </td>
   </tr>
 </table>
-
-# INTERESTS:
-
-4SAKN, BLOCKTALES, CRK, ~~DANDYSWORLD~~, **INANIMATEINSANITY**,
-
-BFDI, BFDIA, TPOT, BFB, DIEOFDEATH, SEWH, LIMBUSCOMPANY, **LOBOTOMY CORP**
-
-DIE OF DEATH, **HETALIA**, COUNTRYHUMANS, PJSK, ZATO: ILTWAEIT,
-
-**TSPUD**, NSO, **G&B**, **NAPOLEONIC WARS**, **NULLSCAPE**, THE ZOMBIES REVENGE, ONESHEF
-
-**NAPOLEONICLOIDS**, PATHOLOGY, MUSIC THEORY, **WW2 HISTORY**, FRUTIGER AERO
 
 ![](https://komarev.com/ghpvc/?username=corsackinarrator)
 
