@@ -1,6 +1,6 @@
 <img width="876" height="671" alt="image" src="https://github.com/user-attachments/assets/f59caf1d-096e-458b-afd7-c6b08d7e4d30" />
 
-im a karloid fullfix yo...
+im a karloid heavykin and operator c'link yo...
 
 
 <table>
