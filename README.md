@@ -16,8 +16,8 @@ kaizer n cylvester! ^
 
 ![](https://komarev.com/ghpvc/?username=corsackinarrator)
 
-<a href="https://cylvestergpt.straw.page">strawpage  ~</a>
-<a href="https://operatingsystem.atabook.org/">~  ata</a>
+<a href="https://cylvestergpt.straw.page">strawpage~</a>
+<a href="https://operatingsystem.atabook.org/">~ata</a>
 
 <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/dba035a8-5ae1-4f42-a9e3-747857bc641a" /> <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/48caef1e-2dba-4ae7-a112-7dc6ef5f5bfb" />
 <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/580d0f4a-af95-4bf9-9faf-6b7fcc37a812" /> <img width="450" height="90" alt="image" src="https://github.com/user-attachments/assets/e3d2e887-f79a-46c9-a5d8-83dd3ddca3fa" />
