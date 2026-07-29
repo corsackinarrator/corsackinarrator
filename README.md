@@ -10,7 +10,7 @@ kaizer n cylvester! ^
     <td width="70%" valign="top">
       <h3>SOME INFO ABOUT ME!</h3>
       <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. PLEASE C+H AND INT, THATS OUR COMF! Main interests are G&B, NAPOLEONICLOIDS, NULLSCAPE, LOBCORP, AHA, HETALIA, CLASSICALOID and OMORI, but i have more interests in my strawpage!
-      [strawpage](https://cylvestergpt.straw.page) [ata](https://operatingsystem.atabook.org/) [artfight](https://artfight.net/~floweringwilloww-yt)</p>
+      <a href="https://cylvestergpt.straw.page">strawpage</a>
     </td>
   </tr>
 </table>
