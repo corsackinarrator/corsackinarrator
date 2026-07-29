@@ -10,18 +10,14 @@ kaizer n cylvester! ^
     <td width="70%" valign="top">
       <h3>SOME INFO ABOUT ME!</h3>
       <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. PLEASE C+H AND INT, THATS OUR COMF! Main interests are G&B, NAPOLEONICLOIDS, NULLSCAPE, LOBCORP, AHA, HETALIA, CLASSICALOID and OMORI, but i have more interests in my strawpage!
-      <a href="https://cylvestergpt.straw.page">strawpage</a>
     </td>
   </tr>
 </table>
 
 ![](https://komarev.com/ghpvc/?username=corsackinarrator)
 
-
-
-# our ata! \/
-
-https://operatingsystem.atabook.org/
+<a href="https://cylvestergpt.straw.page">strawpage</a>
+<a href="https://operatingsystem.atabook.org/">ata</a>
 
 # ARTFIGHT!!! \/
 https://artfight.net/~floweringwilloww-yt
