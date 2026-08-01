@@ -1,6 +1,6 @@
 <img width="876" height="671" alt="image" src="https://github.com/user-attachments/assets/f59caf1d-096e-458b-afd7-c6b08d7e4d30" />
 
-im a karloid heavykin/MAYBE fictive and operator c'link yo... i'm kind of unstable at times but i will write that down in my name if i am. if i am unstable/upset, i might flood you with messages or ignore you.
+im a karloid heavykin/MAYBE fictive and operator c'link yo... twins are always free to int! if you yume with my kins, please refrain from making suggestive/similar types of jokes like that, ok? ty! i'm kind of unstable at times but i will write that down in my name if i am. if i am unstable/upset, i might flood you with messages or ignore you.
 
 
 <table>
