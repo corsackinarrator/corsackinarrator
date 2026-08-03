@@ -2,6 +2,8 @@
 
 im a karloid heavykin/MAYBE fictive and operator c'link yo... twins are always free to int! if you yume with my kins, please refrain from making suggestive/similar types of jokes like that, ok? ty! i'm kind of unstable at times but i will write that down in my name if i am. if i am unstable/upset, i might flood you with messages or ignore you.
 
+ponytown's karloid ^w^
+
 
 <table>
   <tr>
