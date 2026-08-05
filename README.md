@@ -4,6 +4,7 @@ im a karloid heavykin/MAYBE fictive and operator c'link yo... twins are always f
 
 ponytown's karloid ^w^
 
+i'm always open to be friends! ALWAYS. i'm desperate...
 
 <table>
   <tr>
