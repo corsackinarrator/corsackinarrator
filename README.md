@@ -13,7 +13,7 @@ i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! 
     </td>
     <td width="70%" valign="top">
       <h3>SOME INFO ABOUT ME!</h3>
-      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. Main interests are G&B, NAPOLEONICLOIDS, NULLSCAPE, LOBCORP, AHA, HETALIA and CLASSICALOID, but i have more interests in my strawpage!
+      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. Main interests are G&B, NAPOLEONICLOIDS, NULLSCAPE, PHIGHTING, LOBCORP, AHA, HETALIA and CLASSICALOID, but i have more interests in my strawpage!
     </td>
   </tr>
 </table>
