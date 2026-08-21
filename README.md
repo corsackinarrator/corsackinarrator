@@ -1,6 +1,6 @@
 <img width="876" height="671" alt="image" src="https://github.com/user-attachments/assets/f59caf1d-096e-458b-afd7-c6b08d7e4d30" />
 
-im a karloid heavykin/MAYBE fictive and operator c'link yo... twins are always free to int! if you yume with my kins, please refrain from making suggestive/similar types of jokes like that, ok? ty! i'm kind of unstable at times but i will write that down in my name if i am. if i am unstable/upset, i might flood you with messages or ignore you.
+im a banhammer + karloid fictkin yo... twins are always free to int! if you yume with my kins, please refrain from making suggestive/similar types of jokes like that, ok? ty! i'm kind of unstable at times but i will write that down in my name if i am. if i am unstable/upset, i might flood you with messages or ignore you.
 
 on ponytown, you can usually find me as operator, karloid, domasp, banhammer, or more!
 
@@ -13,7 +13,7 @@ i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! 
     </td>
     <td width="70%" valign="top">
       <h3>SOME INFO ABOUT ME!</h3>
-      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. Main interests are G&B, NAPOLEONICLOIDS, NULLSCAPE, PHIGHTING, LOBCORP, AHA, HETALIA and CLASSICALOID, but i have more interests in my strawpage!
+      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. Main interests in my strawpage!
     </td>
   </tr>
 </table>
