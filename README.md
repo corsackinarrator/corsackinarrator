@@ -18,7 +18,7 @@
   </tr>
 </table>
 
-<p align="center">![](https://komarev.com/ghpvc/?username=corsackinarrator) <img alt="GitHub followers" src="https://img.shields.io/github/followers/operatorkarl?style=flat&label=FRIENDS;&labelColor=F0E68C&color=FAFAD2"></p>
+![](https://komarev.com/ghpvc/?username=corsackinarrator) <img alt="GitHub followers" src="https://img.shields.io/github/followers/operatorkarl?style=flat&label=FRIENDS;&labelColor=F0E68C&color=FAFAD2"
 
 
 <a href="https://cylvestergpt.straw.page">strawpage~</a>
