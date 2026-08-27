@@ -18,11 +18,8 @@
   </tr>
 </table>
 
-![](https://komarev.com/ghpvc/?username=corsackinarrator) <img alt="GitHub followers" src="https://img.shields.io/github/followers/operatorkarl?style=flat&label=FRIENDS;&labelColor=F0E68C&color=FAFAD2"
-
-
-<a href="https://cylvestergpt.straw.page">strawpage~</a>
-<a href="https://operatingsystem.atabook.org/">~ata</a>
+<p align="center"><a href="https://cylvestergpt.straw.page">strawpage~</a>
+<a href="https://operatingsystem.atabook.org/">~ata</a></p>
 
 Welcome to the CipherSpace!
 A webtoon about 5 silly cipherhumans and their sidekicks battling the evil guys!
