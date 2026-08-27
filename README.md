@@ -1,8 +1,10 @@
 <img width="876" height="671" alt="image" src="https://github.com/user-attachments/assets/f59caf1d-096e-458b-afd7-c6b08d7e4d30" />
 
-im a banhammer + karloid fictkin yo... twins are always free to int! i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead! but, i struggle to hold conversations when i've already started them, so i may be a bit dry.
+<p align="center">im a banhammer + karloid fictkin yo... twins are always free to int!</p>
+<p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
+<p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
 
-do NOT flirt with me, do not make harsh jokes either.
+<p align="center">do NOT flirt with me, do not make harsh jokes either.</p>
 
 <table>
   <tr>
