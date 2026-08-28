@@ -4,7 +4,7 @@
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
 <p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
 
-<p align="center">do NOT flirt with me, do not make harsh jokes either. medsword, subkit and subgraft shippers do NOT mention it if you want to int. </p>
+<p align="center">do NOT flirt with me, do not make harsh jokes either. medsword, subkit and subgraft shippers dnmention/dni </p>
 
 <table>
   <tr>
