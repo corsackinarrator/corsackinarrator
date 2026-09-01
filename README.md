@@ -1,4 +1,4 @@
-<img width="1000" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
+<img width="1200" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
 
 <p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
