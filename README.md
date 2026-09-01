@@ -18,8 +18,8 @@
   </tr>
 </table>
 
-<p align="center"><a href="https://cylvestergpt.straw.page">strawpage~</a>
-<a href="https://operatingsystem.atabook.org/">~ata</a></p>
+<p align="center"><a href="https://cylvestergpt.straw.page">, strawpage '</a>
+<a href="https://operatingsystem.atabook.org/">, ata '</a> <a href="https://discord.gg/EQTAD6WjRX">, webtoon dc server '/a><a href="https://www.youtube.com/@operakai-p">, new youtube '/a></p>
 
 Welcome to the CipherSpace!
 A webtoon about 5 silly cipherhumans and their sidekicks battling the evil guys!
