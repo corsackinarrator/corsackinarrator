@@ -1,10 +1,10 @@
-<img width="876" height="671" alt="image" src="https://i.pinimg.com/736x/30/18/ae/3018ae61d54c234eff0eb6d80cc27f85.jpg" />
+<img width="876" height="671" alt="image" src="file:///Users/daphne/Downloads/banhammer5.jpg" />
 
 <p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
 <p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
 
-<p align="center">do NOT flirt with me, do not make harsh jokes either. medsword, subkit and subgraft shippers dnmention/dni </p>
+<p align="center">do NOT flirt with me, do not make harsh jokes either. medsword and subgraft shippers dnmention/dni </p>
 
 <table>
   <tr>
