@@ -1,5 +1,5 @@
 <img width="1200" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
-
+ponytown's Karloid!!
 <p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
 <p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
