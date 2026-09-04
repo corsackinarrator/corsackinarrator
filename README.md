@@ -5,8 +5,7 @@ ponytown's karloid :3
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=2000&pause=900000&color=A16DF7&center=true&vCenter=true&width=1000&lines=im+a+banhammer+%2B+karloid+hyperfixkin+yo...+twins+are+always+free+to+int!)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=2000&pause=900000&color=A16DF7&center=true&vCenter=true&width=1000&lines=i'm+always+open+to+be+friends!+also%2C+PLEASE+C%2BH+AND+INT!+even+if+i+don't+know+you%2C+go+ahead!)](https://git.io/typing-svg)
-<p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=2000&pause=900000&color=A16DF7&center=true&vCenter=true&width=1000&lines=i+struggle+to+hold+conversations+when+i've+already+started+them%2C+so+i+may+be+a+bit+dry.)](https://git.io/typing-svg)
 <p align="center">do NOT flirt with me, do not make harsh jokes either. medsword and subgraft shippers dnmention/dni </p>
 
 <table>
