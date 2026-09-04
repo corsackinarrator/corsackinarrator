@@ -1,4 +1,4 @@
-<img width="1200" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
+<img width="1300" height="671" alt="image" src="https://64.media.tumblr.com/9c7b13f6714c950b32dc0e8b61a29fd4/43b94d9b1541dd9d-e6/s1280x1920/bbcedc711aa4deb9f45dda6938e12ba0676edcf0.pnj" />
 ponytown's Karloid!!
 <p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
@@ -21,11 +21,4 @@ ponytown's Karloid!!
 <p align="center"><a href="https://cylvestergpt.straw.page">, strawpage '</a>
 <a href="https://operatingsystem.atabook.org/">, ata '</a> <a href="https://discord.gg/EQTAD6WjRX">, webtoon dc server '</a><a href="https://www.youtube.com/@operakai-p">, new youtube '</a></p>
 
-Welcome to the CipherSpace!
-A webtoon about 5 silly cipherhumans and their sidekicks battling the evil guys!
-
-   Something's not right. 
-
-Ummm...
-
-<a href="https://discord.gg/EQTAD6WjRX">THERE'S NO TURNING BACK</a>
+<img width="1200" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
