@@ -22,3 +22,4 @@ ponytown's Karloid!!
 <a href="https://operatingsystem.atabook.org/">, ata '</a> <a href="https://discord.gg/EQTAD6WjRX">, webtoon dc server '</a><a href="https://www.youtube.com/@operakai-p">, new youtube '</a></p>
 
 <img width="1200" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
+<img width="1800" height="500" alt="image" src="https://64.media.tumblr.com/2b34949c1ac29d91779d3e8a0cfa35f5/43b94d9b1541dd9d-a3/s1280x1920/42804eff14fbbd10481ea1ac264de6e9eb1f15da.pnj" />
