@@ -3,7 +3,7 @@ ponytown's karloid :3
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Georgia&pause=1000&color=8F51F7&center=true&vCenter=true&width=1000&lines=Your+verdict+is...;GUILTY!!!)](https://git.io/typing-svg)
 
-<p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&pause=900000&color=A16DF7&width=435&lines=im+a+banhammer+%2B+karloid+hyperfixkin+yo...+twins+are+always+free+to+int!)](https://git.io/typing-svg)
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
 <p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
 
