@@ -1,5 +1,5 @@
 <img width="1800" height="500" alt="image" src="https://64.media.tumblr.com/9c7b13f6714c950b32dc0e8b61a29fd4/43b94d9b1541dd9d-e6/s1280x1920/bbcedc711aa4deb9f45dda6938e12ba0676edcf0.pnj" />
-$${\color{#120239}\text{This is red text}}$$
+$${\color{purple}ponytown's karloid :3}$$
 <p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
 <p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
