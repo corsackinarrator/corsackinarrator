@@ -1,5 +1,5 @@
 <img width="1800" height="500" alt="image" src="https://64.media.tumblr.com/9c7b13f6714c950b32dc0e8b61a29fd4/43b94d9b1541dd9d-e6/s1280x1920/bbcedc711aa4deb9f45dda6938e12ba0676edcf0.pnj" />
-ponytown's Karloid :3
+![](data:image/svg+xml,<svg xmlns='http://www.w3.org/2000/svg'><style>/*<![CDATA[*/text{font-family:Arial, Helvetica, sans-serif;font-size:18px;font-weight:400;fill:%23ffffff;stroke:%23000000;stroke-width:3;paint-order:stroke fill}@keyframes wiggle{0%25,100%25{transform:rotate%280deg%29;}25%25{transform:rotate%283deg%29;}75%25{transform:rotate%28-3deg%29;}}/*]]>*/</style><g style='animation:wiggle 2s ease-in-out infinite;transform-origin:center;transform-box:fill-box'><text x='50%25' y='24' text-anchor='middle'>ponytown's Karloid :3</text></g></svg>){100%:41}
 <p align="center">im a banhammer + karloid <a href="https://otherkin.fandom.com/wiki/Hyperfixkin">hyperfixkin</a> yo... twins are always free to int!</p>
 <p align="center">i'm always open to be friends! ALWAYS. also, PLEASE C+H AND INT, THATS MY COMF! even if i don't know you, go ahead!</p>
 <p align="center">but, i struggle to hold conversations when i've already started them, so i may be a bit dry.</p>
