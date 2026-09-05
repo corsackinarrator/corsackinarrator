@@ -26,5 +26,4 @@ best viewed fullscreen, not intended for mobile
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=25&duration=2000&pause=2000&color=A16DF7&background=A77AFF31&center=true&vCenter=true&width=1000&lines=Truly+there+would+be+reason+to+go+mad%2C+were+it+not+for+music.)](https://git.io/typing-svg)
 
-<img width="1200" height="671" alt="image" src="https://i.pinimg.com/736x/e2/2f/fb/e22ffb7f6148b9ff80a6a13a550f3366.jpg" />
 <img width="1800" height="500" alt="image" src="https://64.media.tumblr.com/2b34949c1ac29d91779d3e8a0cfa35f5/43b94d9b1541dd9d-a3/s1280x1920/42804eff14fbbd10481ea1ac264de6e9eb1f15da.pnj" />
