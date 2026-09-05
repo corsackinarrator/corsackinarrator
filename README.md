@@ -1,6 +1,6 @@
 
 <img width="1800" height="500" alt="image" src="https://64.media.tumblr.com/9c7b13f6714c950b32dc0e8b61a29fd4/43b94d9b1541dd9d-e6/s1280x1920/bbcedc711aa4deb9f45dda6938e12ba0676edcf0.pnj" />
-$\color{#D3D3D3}{\text{best viewed on fullscreen, not intended for mobile}}$
+best viewed fullscreen, not intended for mobile
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1000&color=A256F7&center=true&vCenter=true&width=500&lines=Your+verdict+is...;GUILTY!!!)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1000&color=8E60F7&center=true&vCenter=true&width=500&lines=%F0%9D%99%BC%F0%9D%99%B4%F0%9D%99%B4%F0%9D%9A%83+%F0%9D%9A%88%F0%9D%99%BE%F0%9D%9A%84%F0%9D%9A%81...;%F0%9D%99%B3%F0%9D%99%B4%F0%9D%99%BC%F0%9D%99%B8%F0%9D%9A%82%F0%9D%99%B4+!)](https://git.io/typing-svg)
 
